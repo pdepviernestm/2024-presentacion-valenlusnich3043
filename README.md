@@ -12,4 +12,4 @@ Tengo 20 años y vivo en Ciudadela. Me egrese en la escuela Tecnica Nº35 Eduard
 ___
 ![image](https://github.com/pdepviernestm/2024-presentacion-valenlusnich3043/assets/51131255/b85f7054-9a99-41ca-aca5-581b921c95fe)
 
-Foto de mi perrito 
+Foto de mi perrito
