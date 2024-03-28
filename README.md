@@ -8,4 +8,8 @@ Tengo 20 años y vivo en Ciudadela. Me egrese en la escuela Tecnica Nº35 Eduard
 - Jugar paddle
 - Esuchar musica (escucho mucho a Kanye y Mac Miller)
 - Ver series y peliculas (me falta poco para terminar The Office :c )
-- Ver futbol
+- Ver futbol (aguante Boka)
+___
+![image](https://github.com/pdepviernestm/2024-presentacion-valenlusnich3043/assets/51131255/b85f7054-9a99-41ca-aca5-581b921c95fe)
+
+Foto de mi perrito 
